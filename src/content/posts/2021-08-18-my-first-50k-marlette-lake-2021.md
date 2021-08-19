@@ -18,9 +18,12 @@ I followed this approach with great results! Over the weeks, my effort stayed lo
 
 As the training runs got longer and longer, scheduling the sessions became an important thing in my weekly planning. My approach was to *make* the time, and not try to *find* it at some point. In other words, make a plan for when I'd be going for a run each day, and stick to it as much as possible. Fortunately for me, I have a lovely spouse who supported my crazy wishes of waking up before sunrise to head out for a run with nothing but a cup of coffee in the tank.
 
-Since I signed up for a trail race, I figured I should do a fair amount of trail running to get ready. I discovered many new areas, and very quickly found magical moments to fall in love with: running between wildflowers, hearing and seeing wildlife, summiting a long climb, running on mountain ridges as a cool high-altitude breeze dries off the sweat. How I wish I had explored trails before!
+Since I signed up for a trail race, I figured I should do a fair amount of trail running to get ready. I discovered many new areas, and very quickly found magical moments to fall in love with: running between wildflowers, hearing and seeing wildlife, summiting a long climb, running on mountain ridges as a cool high-altitude breeze dries off the sweat. How I wish I had explored trails before! Without a doubt, trails will be destinations for future runs to come. \
+Some of my most epic runs were the long training sessions: [Peavine](https://www.strava.com/activities/5258126574), the [Tahoe-Pyramid Bikeway ](https://www.strava.com/activities/5429356843)(twice! [The second one](https://www.strava.com/activities/5686466889) for an FKT on Verdi-Hirschadale-Verdi), [Thomas Creek](https://www.strava.com/activities/5686466889), the [Duck Pass trail](https://www.strava.com/activities/5576368101) in Mammoth Lakes, discovering the [Lower Lola Montez lake](https://www.strava.com/activities/5580414701), [Mount Lola](https://www.strava.com/activities/5649989568), and from [Donner to Squaw on the PCT](https://www.strava.com/activities/5723600878). 
 
-Race recap:
+So many Strava links! Let's get to the actual 50k and the race report: <https://www.strava.com/activities/5799536082>. 
+
+
 
 \- strategy of pacing, uphills
 
