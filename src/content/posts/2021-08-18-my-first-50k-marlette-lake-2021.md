@@ -21,11 +21,14 @@ As the training runs got longer and longer, scheduling the sessions became an im
 Since I signed up for a trail race, I figured I should do a fair amount of trail running to get ready. I discovered many new areas, and very quickly found magical moments to fall in love with: running between wildflowers, hearing and seeing wildlife, summiting a long climb, running on mountain ridges as a cool high-altitude breeze dries off the sweat. How I wish I had explored trails before! Without a doubt, trails will be destinations for future runs to come. \
 Some of my most epic runs were the long training sessions: [Peavine](https://www.strava.com/activities/5258126574), the [Tahoe-Pyramid Bikeway ](https://www.strava.com/activities/5429356843)(twice! [The second one](https://www.strava.com/activities/5686466889) for an FKT on Verdi-Hirschadale-Verdi), [Thomas Creek](https://www.strava.com/activities/5686466889), the [Duck Pass trail](https://www.strava.com/activities/5576368101) in Mammoth Lakes, discovering the [Lower Lola Montez lake](https://www.strava.com/activities/5580414701), [Mount Lola](https://www.strava.com/activities/5649989568), and from [Donner to Squaw on the PCT](https://www.strava.com/activities/5723600878). 
 
-So many Strava links! Let's get to the actual 50k and the race report: <https://www.strava.com/activities/5799536082>. 
+So many Strava links! Let's get to the last one, and the race report for [The Markette 50k](https://www.strava.com/activities/5799536082). Official results here: <https://tahoetrailrunning.com/wp-content/uploads/2021/08/m50all21.htm>
 
 
 
-\- strategy of pacing, uphills
+On the morning of the race, the air quality was *not* good. Smoke from the Dixie fire in California was everywhere, could smell and even taste it. This was no surprise, as the smoke had been coming and going from the area for weeks - as it happened the year before for other fires.\
+While unhealthy, the smoke was just below the toxic thresholds, so race was not suspended, and therefore I decided to go on as planned, and make the best of it. There were about 80 other people that decided the same.
+
+
 
 \- nutrition, bio
 
