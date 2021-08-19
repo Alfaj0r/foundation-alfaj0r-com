@@ -13,12 +13,12 @@ I signed up for this race on January 4th. I had been wanting to step up to the U
 
 Once the formal training kicked off, a few things were key to staying on target: managing effort levels, the time commitment, and everything else that happens while running for a long time.
 
-Up until this year, I was very familiar with the "no pain, no gain" dogma. But while I was ready to toughen up as much as needed, I had also recently been tuning to a newer approach along the lines of working smarter, not harder. This [TED talk about normal people training like world-class athletes](https://www.youtube.com/watch?v=MALsI0mJ09I) by Stephen Seiler made for a great intro to the concept of planning for the bulk of the training volume to be at a relatively easy effort level, and leaving the hard days to be few and far between. Even better, my training plan started with a [Heart Rate Drift](https://uphillathlete.com/heart-rate-drift/) test to establish just exactly where this line was - at a heart rate of about 148bpm for me.\
-I followed this approach with great results! Over the weeks, my effort stayed low but my speeds started to improve; while I was properly recovering from long runs, and keeping my chances of injury very low. The biggest regret was not having done this kind of training before.
+Up until this year, I was very familiar with the "no pain, no gain" dogma. But while I was ready to toughen up as much as needed, I had also recently been tuning to a newer approach along the lines of working smarter, not harder. This [TED talk about normal people training like world-class athletes](https://www.youtube.com/watch?v=MALsI0mJ09I) by Stephen Seiler made for a great intro to the concept of planning for the bulk of the training volume to be at a relatively easy effort level, and leaving the hard days to be few and far between. Even better, my training plan started with a [Heart Rate Drift](https://uphillathlete.com/heart-rate-drift/) test to establish just exactly where this line was - at a heart rate of about 148bpm for me. This was the magic number for effort, just needed to find how to manage my effort to stay right under that threshold.\
+I followed this approach with great results! Over the weeks, my effort stayed low but my speeds started to improve; while I was properly recovering from long runs, and keeping my chances of injury very low.
 
-\- Time
+As the training runs got longer and longer, scheduling the sessions became an important thing in my weekly planning. My approach was to *make* the time, and not try to *find* it at some point. In other words, make a plan for when I'd be going for a run each day, and stick to it as much as possible. Fortunately for me, I have a lovely spouse who supported my crazy wishes of waking up before sunrise to head out for a run with nothing but a cup of coffee in the tank.
 
-\- discovering trails, water filtering
+Since I signed up for a trail race, I figured I should do a fair amount of trail running to get ready. I discovered many new areas, and very quickly found magical moments to fall in love with: running between wildflowers, hearing and seeing wildlife, summiting a long climb, running on mountain ridges as a cool high-altitude breeze dries off the sweat. How I wish I had explored trails before!
 
 Race recap:
 
