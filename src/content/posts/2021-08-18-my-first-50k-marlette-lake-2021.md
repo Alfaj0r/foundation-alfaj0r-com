@@ -23,7 +23,7 @@ Some of my most epic runs were the long training sessions: [Peavine](https://www
 
 So many Strava links! Let's get to the last one, and the race report for [The Markette 50k](https://www.strava.com/activities/5799536082). Official results here: <https://tahoetrailrunning.com/wp-content/uploads/2021/08/m50all21.htm>
 
-
+![](/assets/marlette50k2021-startline.jpeg "Race started at 7:30am, with a smoke haze")
 
 On the morning of the race, the air quality was *not* good. Smoke from the Dixie fire in California was everywhere, could smell and even taste it. This was no surprise, as the smoke had been coming and going from the area for weeks - as it happened the year before for other fires.\
 While unhealthy, the smoke was just below the toxic thresholds, so race was not suspended, and therefore I decided to go on as planned, and make the best of it. There were about 80 other people that decided the same.
