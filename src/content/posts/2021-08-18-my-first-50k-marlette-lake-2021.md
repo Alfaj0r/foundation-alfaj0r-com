@@ -35,3 +35,7 @@ Nutrition is an important part of an endurance event, and I was again in benefit
 The great views promised by the course were definitely spoiled by the poor visibility from the smoke. The race would have been much more enjoyable in nice conditions. I tried my best to not get bummed out mid-run, and promised myself to come back to parts of the course that were new to me. There was a lot of talking to myself, and overall was in the moment of things, good and bad. The fluctuation of those good and bad things over 6+ hours were a fun challenge to step up to, and I have found valuable gratification in having found myself well prepared for it.
 
 I found a deep joy in running around the mountains for my long training runs, and I long for more days where I refill my water bottle from an alpine lake. There will certainly be more of those. I will likely eventually sign up for another Ultra... perhaps even Marlette 50k in 2022.
+
+
+
+![](/assets/nico_marlette50_finish.jpeg "Finish line!")
