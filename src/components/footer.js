@@ -12,7 +12,7 @@ const Footer = () => (
   >
     <div className="container">
       <p>
-        Alfa0r.com
+        ( ﾟ▽ﾟ)/   Alfaj0r.com 
       </p>
     </div>
   </footer>
