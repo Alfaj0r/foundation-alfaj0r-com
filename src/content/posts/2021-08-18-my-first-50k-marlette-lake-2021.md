@@ -21,21 +21,17 @@ As the training runs got longer and longer, scheduling the sessions became an im
 Since I signed up for a trail race, I figured I should do a fair amount of trail running to get ready. I discovered many new areas, and very quickly found magical moments to fall in love with: running between wildflowers, hearing and seeing wildlife, summiting a long climb, running on mountain ridges as a cool high-altitude breeze dries off the sweat. How I wish I had explored trails before! Without a doubt, trails will be destinations for future runs to come. \
 Some of my most epic runs were the long training sessions: [Peavine](https://www.strava.com/activities/5258126574), the [Tahoe-Pyramid Bikeway ](https://www.strava.com/activities/5429356843)(twice! [The second one](https://www.strava.com/activities/5686466889) for an FKT on Verdi-Hirschadale-Verdi), [Thomas Creek](https://www.strava.com/activities/5686466889), the [Duck Pass trail](https://www.strava.com/activities/5576368101) in Mammoth Lakes, discovering the [Lower Lola Montez lake](https://www.strava.com/activities/5580414701), [Mount Lola](https://www.strava.com/activities/5649989568), and from [Donner to Squaw on the PCT](https://www.strava.com/activities/5723600878). 
 
-So many Strava links! Let's get to the last one, and the race report for [The Markette 50k](https://www.strava.com/activities/5799536082). Official results here: <https://tahoetrailrunning.com/wp-content/uploads/2021/08/m50all21.htm>
+So many Strava links! Let's get to the last one, and the race report for [The Markette 50k](https://www.strava.com/activities/5799536082). Official results are over here: <https://tahoetrailrunning.com/wp-content/uploads/2021/08/m50all21.htm>
 
 ![](/assets/marlette50k2021-startline.jpeg "Race started at 7:30am, with a smoke haze")
 
-On the morning of the race, the air quality was *not* good. Smoke from the Dixie fire in California was everywhere, could smell and even taste it. This was no surprise, as the smoke had been coming and going from the area for weeks - as it happened the year before for other fires.\
-While unhealthy, the smoke was just below the toxic thresholds, so race was not suspended, and therefore I decided to go on as planned, and make the best of it. There were about 80 other people that decided the same.
+On the morning of the race, the air quality was *not* good. Smoke from the Dixie fire in California was everywhere, could smell and even taste it. This was no surprise, as the smoke had been coming and going from the area for weeks. \
+While unhealthy, the smoke was just below the toxic thresholds, so the race was not suspended, and therefore I decided to go on as planned, and make the best of it. There were about 80 other people that decided the same, which made for plenty of company out on the trails.
 
+My main strategy was to keep it in the eazy zone for the first 7 miles, the climb to Snow Valley Peak. Many other people were on the same plan, as we mixed power-hiking and running our way up the mountain. Quickly after the initial shuffle from the start line, I started making moves to pass people. As soon as I would see anyone ahead of me on the trail, I would speed up a bit to catch up, and then hang behind them in recovery pace while waiting for an optimal section (read: not uphill) to say hi and move past. This worked very well, and paid off towards the end when I wanted to walk, but I also didn't want anyone to catch up to me.
 
+Nutrition is an important part of an endurance event, and I was again in benefit of having trained plenty in this area. I kept my hydration up with electrolytes, sodium, and had potato chips and watermelon at the aid stations. I had some manageable nausea, possibly from the air making my mouth feel like an unwashed old ashtray. I went through an entire package of chewing gum, a last-minute addition to my kit that definitely is now added to the packing checklist.
 
-\- nutrition, bio
+The great views promised by the course were definitely spoiled by the poor visibility from the smoke. The race would have been much more enjoyable in nice conditions. I tried my best to not get bummed out mid-run, and promised myself to come back to parts of the course that were new to me. There was a lot of talking to myself, and overall was in the moment of things, good and bad. The fluctuation of those good and bad things over 6+ hours were a fun challenge to step up to, and I have found valuable gratification in having found myself well prepared for it.
 
-\- gear, comfort
-
-\-- saw some runners with poles and curious to try them out sooner or later
-
-Mention the fucking smoke
-
-Final words - signing up for races, goals, joy found during training
+I found a deep joy in running around the mountains for my long training runs, and I long for more days where I refill my water bottle from an alpine lake. There will certainly be more of those. I will likely eventually sign up for another Ultra... perhaps even Marlette 50k in 2022.
