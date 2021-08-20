@@ -3,8 +3,9 @@ template: blog-post
 title: "My first 50k: Marlette Lake 2021"
 slug: Marlette50k2021
 date: 2021-08-18 10:45
-description: Marlette Lake 50k ultramarathon August 15 2021. Near Lake Tahoe,
-  Reno. Race and training recap and report.
+description: |-
+  I ran the Marlette Lake 50k ultramarathon!
+  Then I sat down to write some words about it, and they are HERE!
 featuredImage: /assets/nico_marlette50k_2021_lefrakphoto.jpg
 ---
 I ran my first 50k! The official result was 6:26:22, but that's just a minor detail in the grand scheme of this story.
