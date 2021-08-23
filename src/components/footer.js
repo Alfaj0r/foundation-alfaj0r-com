@@ -12,7 +12,7 @@ const Footer = () => (
   >
     <div className="container">
       <p>
-        ( ﾟ▽ﾟ)/   Alfaj0r.com 
+        ( ﾟ▽ﾟ)/ * * *   Alfaj0r.com is made with Gatsby, the <a href="https://templates.netlify.com/template/foundation-gatsby-netlifycms-starter/"Foundation template</a>, and Netlify CMS.
       </p>
     </div>
   </footer>
