@@ -1,7 +1,7 @@
 ---
 template: blog-post
 title: "My first 50k: Marlette Lake 2021"
-slug: Marlette50k2021
+slug: /Marlette50k2021
 date: 2021-08-18 10:45
 description: |-
   I ran the Marlette Lake 50k ultramarathon!
