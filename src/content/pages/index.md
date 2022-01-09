@@ -3,7 +3,7 @@ template: index-page
 slug: /
 title: Nico's
 tagline: alfaj0r.com
-featuredImage: /assets/nico-mountlola-july2021.jpg
+featuredImage: /assets/nico2021-llportraits.jpg
 cta:
   ctaText: Know more
   ctaLink: /about
